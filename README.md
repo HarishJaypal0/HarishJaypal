@@ -33,6 +33,6 @@
 
 ---
 
-## 💥 Quote
+Thank You 
 
 "Code. Build. Dominate." 🚀
